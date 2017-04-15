@@ -7,14 +7,14 @@
   </tr>
   <tr> 
    <td align=center>
-       ❤❤❤唤醒良知，震撼心灵！❤❤❤<br/>
+❤❤❤唤醒良知，震撼心灵！❤❤❤<br/>
   </tr>
   <tr>
       <td align=center>
- ◆大卫战红魔◆<br/>
- 获得多项国际大奖 全球各界反响巨大<br/>
+◆大卫战红魔◆<br/>
+获得多项国际大奖 全球各界反响巨大<br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">请点击在线观看</a> <br/>
- 如打开慢，缓冲稍等或刷新<br/>
+如打开慢，缓冲稍等或刷新<br/>
    </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%A4%A7%E5%8D%AB%E6%88%98%E7%BA%A2%E9%AD%943.png" /></td>
@@ -56,14 +56,14 @@
    </tr>
   <tr>
       <td align=center>
-      ◆这种反人类罪恶至今还在中国继续◆<br/>
+◆这种反人类罪恶至今还在中国继续◆<br/>
    </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B42.jpg" /></td>
    </tr>
   <tr>
       <td align=center>
-      ◆残忍超越纳粹 引发全球关注◆<br/>
+◆残忍超越纳粹 引发全球关注◆<br/>
    </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%982.jpg" /></td>
@@ -75,31 +75,31 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate6.jpg" /></td>
   </tr>
   <tr>
-   <td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>
+<td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>
        </td>
   </tr>
   <tr>
-   <td align=center>网门网址 https://git.io/ogate 收藏浏览器<br/>
-      推荐谷歌或火狐浏览器<br/>
-      国产浏览器会干扰访问<br/>
+<td align=center>网门网址 https://git.io/ogate 收藏浏览器<br/>
+推荐谷歌或火狐浏览器<br/>
+国产浏览器会干扰访问<br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-      如打开慢，缓冲稍等或刷新<br/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=wnel">大陆请点击进入动态网址</a><br/>
-      微信如果提示：停止访问该网页<br/>
-      请点击右上角，选择浏览器打开<br/>
+如打开慢，缓冲稍等或刷新<br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=wnel">大陆请点击进入动态网址</a><br/>
+微信如果提示：停止访问该网页<br/>
+请点击右上角，选择浏览器打开<br/>
     </td>
   </tr>
   <tr>
       <td align=center>
-      2017网民翻墙最人气软件<br/>
-      安卓版 <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk?og">https://git.io/ogatea</a><br/>
+2017网民翻墙最人气软件<br/>
+安卓版 <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk?og">https://git.io/ogatea</a><br/>
   </tr>
   <tr>
     <td align=center>
-      <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogNews&from=wnel">网门头条</a><br/>
+<a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogNews&from=wnel">网门头条</a><br/>
     </td>
   </tr>
   <tr>
