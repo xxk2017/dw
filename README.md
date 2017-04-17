@@ -4,8 +4,13 @@
   </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%A4%A7%E5%8D%AB%E6%88%98%E7%BA%A2%E9%AD%94.jpg" /></td>
+   </tr>
+  <tr>
+   <td align=center>
+微信如果提示：停止访问该网页<br/>
+请点击右上角，选择浏览器打开<br/>
   </tr>
-  <tr> 
+  <tr>
    <td align=center>
 ❤❤❤唤醒良知，震撼心灵！❤❤❤<br/>
   </tr>
